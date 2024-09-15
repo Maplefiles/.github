@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there, welcome to the journey of maple files
+
+![image](https://github.com/user-attachments/assets/171ae580-6e7c-4e37-86b5-4e1b3f93eca9)
 
 <!--
 
